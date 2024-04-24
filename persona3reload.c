@@ -1,0 +1,1 @@
+My favorite game is Persona3reload now.
